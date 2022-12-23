@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @shape1234
+- 👀 I’m interested in aids
+- 🌱 I’m currently learning aids
+- 💞️ I’m looking to collaborate on aids
+- 📫 How to reach me: discord
